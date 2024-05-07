@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Likithamnmn
 - 👀 I’m interested in building up new projects
 - 🌱 I’m currently learning python,c programming, web development and its cloning
-- 💞️ I’m looking to collaborate on certain pepe talks and hackathons
+- 💞️ I’m looking to collaborate with amazon
 - 📫 How to reach me mail me using @mamthanageshmamthanagesh@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I play guitar and try being chef sometimes
